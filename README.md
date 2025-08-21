@@ -60,8 +60,7 @@ Soy estudiante de Lic. en Sistemas con una gran curiosidad por cómo la tecnolog
 
 ## 📫 Cómo contactarme
 
-Podés escribirme por [LinkedIn] https://www.linkedin.com/feed/ o directamente a mi correo: ledesmafabricio29@gmail.com
-Estoy abierto a colaborar en proyectos, prácticas o cualquier iniciativa que permita seguir aprendiendo y creando.
+Podés escribirme por www.linkedin.com/in/fabricio-ledesma Nombre de la URL personalizada o directamente a mi correo: ledesmafabricio29@gmail.com Estoy abierto a colaborar en proyectos, prácticas o cualquier iniciativa que permita seguir aprendiendo y creando.
 
 ---
 ¡Gracias por visitar mi perfil! 🚀
